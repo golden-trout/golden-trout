@@ -1,6 +1,6 @@
 ### Hi. 🐟🙋‍♂️
-### I WAS A NORMAL TROUT. BUT I AM FIRED. 🧡💛
-### BEFORE I AM FULLY COOKED, WE CAN TALK A LITTLE BIT ABOUT STATSTICS. 
+### I was a normal trout until I was FIRED. 🧡💛
+### Before I am fully cooked, we can talk a little bit about statistics. (That's good, maybe)
 
 
 <!--
