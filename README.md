@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi. 🐟🙋‍♂️
+### I WAS A NORMAL TROUT. BUT I AM FIRED. 🧡💛
+### BEFORE I AM FULLY COOKED, WE CAN TALK A LITTLE BIT ABOUT STATSTICS. 
+
 
 <!--
 **golden-trout/golden-trout** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
